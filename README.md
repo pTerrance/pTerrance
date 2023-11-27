@@ -1,5 +1,4 @@
-### Open source is fun but doesn't buy planes.
-
+Just some guy who likes modern cpp 🙃
 
 DM if you want to exchange Terrance Andrew Davis or [TempleOS](https://only-fans.uk/TempleOS) facts. 
 
